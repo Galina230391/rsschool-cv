@@ -1,5 +1,7 @@
 # Галина Колодеюк
-
+---
+![Github](https://github.com/Galina230391/rsschool-cv/blob/main/IMG-6c51388ff2137c3bd37182dc2bba0f5f-V%20—%20копия.jpg)
+---
 :e-mail: Lino4ka._2010@mail.ru
 
 ---
